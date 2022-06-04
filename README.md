@@ -20,21 +20,21 @@ Modelagem e simualação - https://www.youtube.com/playlist?list=PLxI8Can9yAHcn4
 ## Jobs
 
 [Upwork](https://www.upwork.com/)
-[fiverr](https://www.fiverr.com/)
+
+[Fiverr](https://www.fiverr.com/)
+
 [Freelancer](https://www.br.freelancer.com/)
 
+[Indeed](https://br.indeed.com/)
 
+[Meet Frank](https://meetfrank.com/)
 
+[Relocate Me](https://relocate.me/)
 
+[Just Join It](https://justjoin.it/)
 
-[Upwork](https://www.upwork.com/)
-[Upwork](https://www.upwork.com/)
-[Upwork](https://www.upwork.com/)
-[Upwork](https://www.upwork.com/)
-[Upwork](https://www.upwork.com/)
-[Upwork](https://www.upwork.com/)
-[Upwork](https://www.upwork.com/)
-[Upwork](https://www.upwork.com/)
-[Upwork](https://www.upwork.com/)
-[Upwork](https://www.upwork.com/)
-[Upwork](https://www.upwork.com/)
+[No Fluff Jobs](https://nofluffjobs.com/)
+
+[Turing](https://www.turing.com/)
+
+[Vanhack](https://vanhack.com/)
